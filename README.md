@@ -1,8 +1,8 @@
-# SEO-Pilot
-# 🌟 Digital Marketing, SEO & Web Solutions
 
-Welcome to **SEO-Pilot**, where we transform businesses into powerful digital identities.  
-We specialize in **Digital Marketing, SEO, Website Development, Graphic Design, CRM, and Photography services** to help you grow online.
+# 🌟 Digital Marketing services
+
+Welcome to **Digital Marketing services**, where we transform businesses into powerful digital identities.  
+We specialize in **Digital Marketing: SEO, Website Development, Graphic Design, and Photography services** to help you grow online.
 
 ---
 
