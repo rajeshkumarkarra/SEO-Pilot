@@ -2,7 +2,7 @@
 # 🌟 Digital Marketing services
 
 Welcome to **Digital Marketing services**, where we transform businesses into powerful digital identities.  
-We specialize in **Digital Marketing: SEO, Website Development, Graphic Design, and Photography services** to help you grow online.
+We specialize in **Digital Marketing: Website Development, Search Enigine Optimization, Graphic Design, Social Media, Google my Business and Photography services** to help you grow online.
 
 ---
 
